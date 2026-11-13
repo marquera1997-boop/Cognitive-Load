@@ -14,4 +14,4 @@ focus primarily on key facial areas—particularly the speaker’s eyes
 2014), but to allocate more attention to the speaker’s mouth during
 L2 input, as they rely more heavily on articulatory cues (Birulés
 et al., 2019; Grüter et al., 2023). In line with these attentional shifts,
-we expect comprehension to be higher in the L1 audio condition,
+we expect comprehension to be higher in the L1 audio condition, hghgjhgjh
